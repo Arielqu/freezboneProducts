@@ -1,38 +1,27 @@
 PRODUCT DESCRIPTION
 For the Mighty Chewers: Does your furry friend have a strong bite? No worries! Introducing the Freezbox - the ultimate durable dog bone designed for power chewers. Beyond its toughness, it's a versatile chew toy that can be filled to keep even the most restless dogs entertained. Personalize it with your choice of fillers or opt for our pre-made selections. Freeze and watch your pup enjoy up to 45 minutes of delightful chewing!
 
-Size: The Freezbox is our biggest and toughest bone. At 3" High x 4" Wide it can fill up to 350 grams. Designed to accommodate dogs of all sizes, it's perfect for those weighing up to 140lbs.
+Size: The Freezbox is our biggest and toughest bone. At 3" high x 4" wide, it can fill up to 350 grams. Designed to accommodate dogs of all sizes, it's perfect for those weighing up to 140lbs.
 
-Eco-Friendly and Safe: "FreezBox: A Treat Dispenser That Cares for Your Dog and Mother Earth!" Made from 100% natural rubber, Freezbox ensures safety for your pet and the environment. They're non-toxic, biodegradable, and a step towards a greener planet while offering your dog a satisfying and enduring chew.
+Eco-Friendly and Safe: Made from 100% natural rubber, Freezbox ensures safety for your pet and the environment. They're non-toxic, biodegradable, and a step towards a greener planet while offering your dog a satisfying and enduring chew.
 
-Vet-Approved: "Chewers Delight: Vets Give a Thumbs Up to Freezbox!" Numerous veterinarians nationwide vouch for Freezbox as the go-to solution for dog parents dealing with enthusiastic chewers. They're not just a distraction from unwanted chewing habits but also a joyous alternative to potential household damage.
+Vet-Approved: Numerous veterinarians nationwide vouch for Freezbox as the go-to solution for dog parents dealing with enthusiastic chewers. They're not just a distraction from unwanted chewing habits but also a joyous alternative to potential household damage.
 
-Hassle-Free Maintenance: "Sparkling Clean Made Easy with Freezbox!" Keeping the Freezbox pristine is a breeze due to its natural rubber composition, making it dishwasher-friendly. Pop it in the dishwasher, refill with your dog's preferred filler, freeze, and it's ready for another round of chewing fun!
+Hassle-Free Maintenance: Keeping the Freezbox pristine is a breeze due to its natural rubber composition, making it dishwasher-friendly. Pop it in the dishwasher, refill with your dog's preferred filler, freeze, and it's ready for another round of chewing fun!
 
 SERVING GUIDELINES
-For an average-sized adult dog, feed up to 180 grams per day with official Freezbone fillers, which can be either two 90-gram fillers or four 45-gram fillers. 
-
-
+For an average-sized adult dog, feed up to 180 grams per day with official Freezbone fillers, which can be either two 90-gram fillers or four 45-gram fillers.
 
 The Freezbone is designed for supplemental feeding and can be used daily alongside a complete and balanced dog food diet. When using Freezbone fillers, adjust your dog's total food portion to ensure a consistent caloric intake.
 
 PREPARATION INSTRUCTIONS
 Step 1: Grab an official empty Freezbox.
 
-
-
 Step 2: Open the seal of the filler pouch and pour the contents into the Freezbox.
-
-
 
 Step 3: Freeze the Freezbox to serve as a long-lasting treat.
 
-
-
 IMPORTANT: Please keep the filler pouch refrigerated once opened.
-
-
-
 Note: The Freezbox is our largest bone, capable of holding up to 350 grams of food. It serves not only as a treat dispenser but also as the primary serving container for your dog's meals. You can freeze your dog's food in the Freezbox to extend enjoyment time and provide a satisfying chew. Additionally, the Freezbox can be warmed in the microwave, allowing your dog to enjoy a warm meal. If you choose to microwave the food, ensure it has cooled to a safe temperature before serving it to your dog.
 
 Freezbone are intended for supplemental feeding only. This product may be fed daily along with a complete and balanced dog food diet. Feed up to 1 pouch per day for an average - size Adult dog.
